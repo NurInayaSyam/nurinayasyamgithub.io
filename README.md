@@ -1,1 +1,0 @@
-# nurinayasyamgithub.io
